@@ -1,1 +1,1 @@
-# naitik-portfoliol.
+I am a dedicated Video Editor and Visual Content Creator with 2+ years of experience in video editing and digital content creation. I specialize in producing engaging YouTube videos, Shorts, Reels, gaming content, and professional thumbnails. My skills include precise cutting, smooth transitions, visual effects, color correction, audio editing, and creative thumbnail design. I focus on delivering clean, engaging, and visually appealing content while continuously improving my editing techniques and adapting to modern content trends.
